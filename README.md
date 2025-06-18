@@ -1,4 +1,4 @@
-# 👨‍⚖️ Prerak Bhavsar – Legal Assistant Portfolio
+# Prerak Bhavsar – Legal Assistant Portfolio
 
 **📍 Toronto, ON**  
 📧 prerakbhavsar94@gmail.com | 📞 289-991-2710  
